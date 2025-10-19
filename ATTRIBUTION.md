@@ -1,6 +1,6 @@
 # ATTRIBUTION: The Mythological Origins of Cellular Complexity
 
-## In the Beginning, There Was a Men's Group
+## In the Beginning, There Was a Men's Group (SELF DEPRECATION AND MYTHOLOGY WAS STILL ON THE BACK LOG)
 
 In the First Century of the Common Era, when the world was still young and confused about its organizational structures, there gathered a peculiar assembly of individuals who would, through a series of increasingly improbable events, accidentally catalyze the emergence of eukaryotic life itself.
 
