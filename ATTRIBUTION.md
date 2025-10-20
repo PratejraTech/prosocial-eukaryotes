@@ -1,6 +1,6 @@
 # ATTRIBUTION: The Mythological Origins of Cellular Complexity
 
-## In the Beginning, There Was a Men's Group (SELF DEPRECATION AND MYTHOLOGY WAS STILL ON THE BACK LOG)
+## In the Beginning, There Was a Men's Group (SELF DEPRECATION, HUMOUR AND MYTHOLOGY WAS STILL IN THE BACK LOG)
 
 In the First Century of the Common Era, when the world was still young and confused about its organizational structures, there gathered a peculiar assembly of individuals who would, through a series of increasingly improbable events, accidentally catalyze the emergence of eukaryotic life itself.
 
@@ -8,7 +8,7 @@ This was no ordinary gathering. This was a **Men's Group**.
 
 ## The Gathering of the Bewildered
 
-Among the assembled was one Ben Heslop—a figure of such profound ordinariness that the cosmos itself seemed to yawn in his presence. Ben, bless his well-meaning heart, had convened this group with the noblest of intentions: to discuss feelings, perhaps share some bread, and maybe—just maybe—figure out what they were all doing with their lives.
+Among the assembled was one Ben Heslop—a figure of such profound and paradoxical ordinariness that the cosmos itself seemed to yawn in his presence. Ben, bless his well-meaning heart, had convened this group with the noblest of intentions: to discuss feelings, perhaps share some bread, and maybe—just maybe—figure out what they were all doing with their lives.
 
 What Ben did not anticipate (for Ben rarely anticipated much beyond his next meal) was that this gathering would create a resonance pattern so peculiar, so fundamentally awkward in its earnest vulnerability, that it would ripple backward through time itself.
 
