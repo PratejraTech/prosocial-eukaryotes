@@ -1,6 +1,9 @@
 # ATTRIBUTION: The Mythological Origins of Cellular Complexity
+## Prompted by "Some Guy" and Written by Grok
 
-## In the Beginning, There Was a Men's Group (SELF DEPRECATION, HUMOUR AND MYTHOLOGY WAS STILL IN THE BACK LOG)
+**Actual Attribution: B, Heslop (2018-2023)**
+
+## In the Beginning, There Was a Men's Group (SELF DEPRECATION, HUMOUR AND MYTHOLOGY WAS DISCOVERED THOUSANDS OF YEARS PRIOR IN A PLACE FAR FAR AWAY...)
 
 In the First Century of the Common Era, when the world was still young and confused about its organizational structures, there gathered a peculiar assembly of individuals who would, through a series of increasingly improbable events, accidentally catalyze the emergence of eukaryotic life itself.
 
